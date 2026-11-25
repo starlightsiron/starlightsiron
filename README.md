@@ -2,7 +2,7 @@
 <img width="666" height="375" alt="image-removebg-preview (52)" src="https://github.com/user-attachments/assets/c2823dc7-1e41-461a-a253-8b1b01b1a069" />
 
 
-───────────────────────୨ৎ─────────────────
+
 
 ♡ ★ Names Starlight, but I also go by Ethel, Void, Zam, Null, Spoke, Parrot, or any of the names in my [strawpage](https://zamsmutiny.straw.page/)! ★ Ask my pronouns, I'm a system!
 
