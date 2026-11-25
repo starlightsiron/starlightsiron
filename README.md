@@ -2,7 +2,8 @@
 <img width="666" height="375" alt="image-removebg-preview (52)" src="https://github.com/user-attachments/assets/c2823dc7-1e41-461a-a253-8b1b01b1a069" />
 ───────────────────────୨ৎ─────────────────
 ♡ ★ Names Starlight, but I also go by Ethel, Void, Zam, Null, Spoke, Parrot, or any of the names in my [strawpage](https://zamsmutiny.straw.page/)! ★ Ask my pronouns, I'm a system!
-<img width="510" height="371" alt="image-removebg-preview (53)" src="https://github.com/user-attachments/assets/49c44425-9546-43bf-9371-20fbf02284d0" /> (art by Mooki)
+<img width="510" height="371" alt="image-removebg-preview (53)" src="https://github.com/user-attachments/assets/49c44425-9546-43bf-9371-20fbf02284d0" /> 
+<sub><sup>Art by Mooki</sup></sub>
 ★ I'm a yumeshipper, read my [yumepage](https://eternalslyreyume.straw.page/) for sharing statuses! ── .✦
 <img width="549" height="455" alt="image-removebg-preview (35)" src="https://github.com/user-attachments/assets/932ecb13-cb0e-41b5-a91a-d11c15e37528" />
 ★ I'm a minor, so adults/younger iwcaution if you make sexual jokes / comments frequently ! 
