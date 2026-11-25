@@ -20,7 +20,7 @@
 <img width="1200" height="129" alt="image-removebg-preview (28)" src="https://github.com/user-attachments/assets/f1d1fe9d-e849-4bec-8302-bcf79ff0dea7" />
 
 # ★ B4YI / B4YF ! 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
 
 <img width="666" height="375" alt="image-removebg-preview (52)" src="https://github.com/user-attachments/assets/c0e3990b-0d97-4476-8ee3-5720e5857eec" />
 
@@ -32,7 +32,6 @@
 ― DO NOT FORCE ME TO TALK TO YOU!! I get anxious with talking to people outside of my close group, even then, I get anxious to talk to ANYONE. I usually stay quiet most of the time, but if you do want to hear from me, reach out - can't guarantee I'll respond instantly!
 ⁠― BSD fandom iwcaution, especially if you play the bsd roleplay game on roblox. I've had horrible experiences on there. ⁠
 ― read my dni in my strawpage I beg.
-────────────────────────────────────────────────────────────────────────────────────────────────────────
 
 <img width="500" height="500" alt="image-removebg-preview (54)" src="https://github.com/user-attachments/assets/76b0545e-007e-4d7b-af09-5402f72a80ee" />
 
